@@ -1,2 +1,2 @@
 ![Visitors](https://profile-counter.glitch.me/friesalafrancais/count.svg)
-![OSnzd](https://github.com/friesalafrancais/friesalafrancais/assets/115602464/8a15352a-ce81-4440-a070-3751fe18af88)
+![image](https://github.com/user-attachments/assets/2ce388c4-e6de-4862-a558-893231a42f1b)
